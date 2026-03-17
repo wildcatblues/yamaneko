@@ -18,5 +18,8 @@ I like Golden Kamuy and some other assorted things to a lesser degree, mostly vi
 If I'm on ponytown it's to chill, or just goof off with my friends. I'm open for light chatting but I tend to be introverted so if I go 
 quiet don't take offense I'm probably just vibing.
 
+You can whisper me Whenever you want. I do not mind. I might be off tab and if I ignore you I literally just didn't see your whisper. I have the
+attention span of a bug and am off tab often but when I do notice it I try to reply, if you're offline I'm sorry I tried.💔
+
 # YOU ARE ALLOWED TO TAKE INSPIRATION FROM MY SKINS I DONT CARE PEACE AND LOVE ON PLANET EARTH ♥
 
