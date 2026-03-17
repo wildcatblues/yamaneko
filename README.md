@@ -5,9 +5,10 @@
 I am an adult and I do not want to interact with people who are younger than 20. 
 I will not make an exception. I guarantee you if you're 15 or 16 I am over twice your age and that's weird.
 
+
 ## What Are Your Pronouns?
 
-I go by He/Him. That's it. 
+I go by He/Him. That's it. I'm gay.
 
 ## About
 
@@ -16,3 +17,6 @@ I like Golden Kamuy and some other assorted things to a lesser degree, mostly vi
 
 If I'm on ponytown it's to chill, or just goof off with my friends. I'm open for light chatting but I tend to be introverted so if I go 
 quiet don't take offense I'm probably just vibing.
+
+# YOU ARE ALLOWED TO TAKE INSPIRATION FROM MY SKINS I DONT CARE PEACE AND LOVE ON PLANET EARTH ♥
+
