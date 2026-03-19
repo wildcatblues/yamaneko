@@ -8,7 +8,7 @@ I will not make an exception. I guarantee you if you're 15 or 16 I am over twice
 
 ## What Are Your Pronouns?
 
-I go by He/Him. That's it. I'm gay.
+I go by He/Him. I'm gay.
 
 ## About
 
